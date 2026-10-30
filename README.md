@@ -28,5 +28,5 @@ This webssite gives you a basic information about who i am and about my hobbies 
 
 
 you come to here just to seee my demo url means you are definitely interested to see my project crazy and dablu bro (maybe you get that ) 
-DEMO URL-https://pleasegivemeaps5.netlify.app
+DEMO URL-https://pleasegivemeapsbuddy.netlify.app
 i think you are gonna gift me if dm me on slack or insta- aryaagrawal_bmw
